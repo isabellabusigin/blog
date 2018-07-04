@@ -1,2 +1,2 @@
 # blog
-Isabella's Blog
+Isabella's Blogs!
